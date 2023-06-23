@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on projects software open source
 - 📫 How to reach me on edwinfrcperez@gmail.com edwin_frc@hotmail.com
-or whatssap (503)6011-5276
+or whatssap (503)7524-9775
 
 <!---
 edwinfr/edwinfr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
